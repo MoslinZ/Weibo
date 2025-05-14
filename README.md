@@ -24,5 +24,6 @@ https://androidfilehost.com/?fid=5649633102268469222
 罗逸文-逸文评机
 https://m.weibo.cn/u/2068200753
 罗逸文通过“新浪微博”平台上的账号“@罗逸文-逸文评机 ”自2019年以来反复多次、持续通过使用侮辱、恶俗、低俗、丑化性质的言辞捏造事实谩骂、攻击、抹黑华为、华为产品、华为用户和华为粉丝，造谣“华为雇水军恶心小米和小米用户”、造谣“华为打压OPPO”、造谣“华为让上面全网封杀 ...全文
-https://web.archive.org/web/20240607074814/https%3A%2F%2Fm.weibo.cn%2Fu%2F2068200753
+
+道歉存档:https://web.archive.org/web/20240607154814/https://m.weibo.cn/u/2068200753
 ![罗逸文道歉](https://github.com/MoslinZ/Weibo/blob/main/7b463d31gy1hqgxyovneaj22402tc7wh.jpg)
