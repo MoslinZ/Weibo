@@ -40,3 +40,6 @@ https://m.weibo.cn/u/2068200753
 ![罗逸文道歉](https://github.com/MoslinZ/Weibo/blob/main/837084003248832.jpg)
 道歉存档:https://web.archive.org/web/20240607154814/https://m.weibo.cn/u/2068200753
 ![罗逸文道歉](https://github.com/MoslinZ/Weibo/blob/main/7a904c3dgy1hqh28hmoewj20z02fxtom.jpg)
+
+河南商丘小米su7落水
+https://web.archive.org/web/20250623050515/https://m.weibo.cn/u/6358466852
