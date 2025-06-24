@@ -43,3 +43,4 @@ https://m.weibo.cn/u/2068200753
 
 河南商丘小米su7落水
 https://web.archive.org/web/20250623050515/https://m.weibo.cn/u/6358466852
+![河南商丘小米落水](https://github.com/MoslinZ/Weibo/blob/main/%E6%B2%B3%E5%8D%97%E5%95%86%E4%B8%98%E5%B0%8F%E7%B1%B3%E8%90%BD%E6%B0%B4.png)
