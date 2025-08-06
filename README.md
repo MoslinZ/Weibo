@@ -1,6 +1,9 @@
 # Weibo
 小米公司雷军卢伟冰等人的微博历史存档
 
+# 欢迎关注另一个重要项目:雷军微博考古
+https://github.com/MoslinZ/LeiJun
+
 # 小米SU7 Ultra挖孔机盖风波
 
 雷军:碳纤维前舱盖，不仅改了外观件，内部结构也改了，双风道直接导向轮毂，支持轮毂散热https://web.archive.org/web/20250302070028/https://m.weibo.cn/u/1749127163
