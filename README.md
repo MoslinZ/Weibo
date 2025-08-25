@@ -4,6 +4,20 @@
 # 欢迎关注另一个重要项目:雷军微博考古
 https://github.com/MoslinZ/LeiJun
 
+# 绿化带战神系列音乐
+①深海妖怪﹣《绿化带战神》原唱完整版
+https://youtube.com/shorts/kjfg8yNqhf4
+
+②深海妖怪﹣《绿化带战神之法务赞美篇》原唱完整版
+https://youtu.be/0S7IbRN8T4U
+
+
+③深海妖怪﹣《绿化带战神三：驴大婶》原唱完整版
+https://youtu.be/TzBLRCjbdo8
+
+④深海妖怪﹣《绿化带战神四：驴免费颂》原唱完整版
+https://youtube.com/shorts/iQuRA9o9fJo
+
 # 小米SU7 Ultra挖孔机盖风波
 
 雷军:碳纤维前舱盖，不仅改了外观件，内部结构也改了，双风道直接导向轮毂，支持轮毂散热https://web.archive.org/web/20250302070028/https://m.weibo.cn/u/1749127163
