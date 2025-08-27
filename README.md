@@ -23,11 +23,6 @@ https://youtube.com/shorts/iQuRA9o9fJo
 雷军:碳纤维前舱盖，不仅改了外观件，内部结构也改了，双风道直接导向轮毂，支持轮毂散热https://web.archive.org/web/20250302070028/https://m.weibo.cn/u/1749127163
 ![雷军挖孔机盖微博](https://github.com/MoslinZ/LeiJun/blob/main/%E9%9B%B7%E5%86%9B.jpg)
 
-车主起诉:
-https://web.archive.org/web/20250621024040/https://m.weibo.cn/detail/5179662051053711
-![JOhn呆伐](https://github.com/MoslinZ/LeiJun/blob/main/%E8%BD%A6%E4%B8%BB%E8%B5%B7%E8%AF%89.jpg)
-博主微博主页:https://web.archive.org/web/20250621024106/https://m.weibo.cn/u/6481818968
-
 # 珠江新闻徐闻曲界小米SU7烧毁，2未成年人死亡
 https://web.archive.org/web/20250410085250/https://m.weibo.cn/u/2434045277
 ![珠江新闻当日报道](https://github.com/MoslinZ/Weibo/blob/main/5153908667189681.jpg)
