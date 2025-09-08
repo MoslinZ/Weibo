@@ -45,7 +45,7 @@ https://androidfilehost.com/?fid=5649633102268469222
 
 # 小米新车出现测试事件
 李肖爽（2025.9.7）
-https://m.weibo.cn/detail/5208288883118568
+https://web.archive.org/web/20250907155746/https://m.weibo.cn/u/1087385463
 
 王化（2025.9.7）
 https://web.archive.org/web/20250907155742/https://m.weibo.cn/u/1080548507
