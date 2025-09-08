@@ -50,7 +50,7 @@ https://m.weibo.cn/detail/5208288883118568
 王化（2025.9.7）
 https://web.archive.org/web/20250907155742/https://m.weibo.cn/u/1080548507
 
-雷军（无转发继续哑巴立人设）
+雷军（立人设）
 
 # 赛车星冰乐微博存档【赛车星冰乐微博202431130至20250615.zip】
 https://archive.org/download/202431130-20250615/%E8%B5%9B%E8%BD%A6%E6%98%9F%E5%86%B0%E4%B9%90%E5%BE%AE%E5%8D%9A202431130%E8%87%B320250615.zip
